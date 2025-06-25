@@ -23,7 +23,7 @@
 
 点击访问：<a href="https://hl439.pages.dev/"> 黑料不打烊</a>
 
-点击访问：<a href="https://hl382.pages.dev/">黑料社区</a>
+点击访问：<a href="https://hl382.pages.dev/">黑料社区app</a>
 
 点击访问：<a href="https://hl381.pages.dev/">今日黑料 热门黑料</a>
 
